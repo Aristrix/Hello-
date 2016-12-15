@@ -1,4 +1,4 @@
-# hello-world
+# Sup Homies!
 I am new at this!
 
 Hey! I am trying to learn coding yeah! 
