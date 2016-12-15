@@ -7,4 +7,4 @@ Because I enjoyed editing things for my game account in Openkore. :)
 
 Using only notepad and execute as cmd.
 
-Oraaayt!
+Oraaayt! :D
